@@ -1,3 +1,6 @@
+- I SPEAK ENGLISH, DUTCH, AND A LITTLE GERMAN
+- I AM A MINOR, AND HAVE SOCIAL ANXIETY AND AUTISM.
+
 KINS!! -
 
 ![WILL](https://github.com/user-attachments/assets/09a94ccf-0cdd-40d5-89af-4fc89b3322b9) ![POWDER](https://github.com/user-attachments/assets/c19c597e-f61a-4684-9c7d-989430172409)
