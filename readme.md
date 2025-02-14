@@ -1,5 +1,7 @@
 Fun fact: I've never seen spiderman 1
 
+When
+when you wanna sit with someone because they have cool skins but theres no c+h in their name
 
 KINS!! -
 
