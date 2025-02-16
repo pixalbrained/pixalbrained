@@ -1,6 +1,15 @@
 WIP MAKING THIS PAGE GORGEOUS <//3
 
 
+<p align="center"> <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2o2cDI5dHJwajEwb3B0NHhjNHY5NGJyam5obWhldnFhdnJsdWR4aiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/hvRrmhWWai2VgCqPek/giphy.gif"
+<p align="center">
+
+<p align="left">
+$\color{#FF0000}{\texttt{i am a rotting body in a compost bin}}$
+<p align="right">
+$\color{#FF0000}{\texttt{oui tell him that like him i choose to burn out rather than fade away}}$
+  </p>
+
 
 - ![strawpage-picasso-MiMAVhaGHYKkgZXkeQKb](https://github.com/user-attachments/assets/3cad379b-bad0-4413-8c86-cd3f2f066308)
 ← Art by Tub of bees - submitted on strawpage!
