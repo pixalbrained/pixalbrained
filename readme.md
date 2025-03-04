@@ -21,4 +21,4 @@ $\color{#FF0000}{\texttt{oui tell him that like him i choose to burn out rather 
 - ![strawpage-picasso-PoOWDmbQeOCdkZudMtma](https://github.com/user-attachments/assets/bce1e81f-aa8d-484c-91e2-7ad676c7d1f1)
 ← Art by Anonymous - submitted on strawpage!
 
-![pony-town-having a sapphic breakdown C+H-double-nod-blinking-padded-4x (1)](https://github.com/user-attachments/assets/2664f8df-0d82-4038-ae3e-9c0196361d32)
+![pony-town-karlach ( C+H ( SIGN ATA-double-nod-padded-toy17-6x](https://github.com/user-attachments/assets/38edf730-e1f7-4b53-a26f-095d82a5357a)
