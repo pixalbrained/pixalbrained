@@ -6,7 +6,7 @@
 <p align="center">
 
 <p align="left">
-$\color{#FF0000}{\texttt{"more of those wretched things,,,"}}$
+$\color{#FF0000}{\texttt{"what is the worth of a single mortal life?"}}$
 <p align="right">
 $\color{#FF0000}{\texttt{"How many die today? How many die tomorrow?"}}$
   </p>
