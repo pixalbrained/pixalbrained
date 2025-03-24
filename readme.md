@@ -6,10 +6,12 @@
 <p align="center">
 
 <p align="left">
-$\color{#FF0000}{\texttt{i am a rotting body in a compost bin}}$
+$\color{#FF0000}{\texttt{"more of those wretched things,,,"}}$
 <p align="right">
-$\color{#FF0000}{\texttt{oui tell him that like him i choose to burn out rather than fade away}}$
+$\color{#FF0000}{\texttt{"How many die today? How many die tomorrow?"}}$
   </p>
+<p align="middle">
+$\color{#FF0000}{\texttt{"All is ash and meat."}}$
 
 
 <p align="center">
