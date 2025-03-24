@@ -2,6 +2,9 @@
   <img src="https://watermelon.crd.co/assets/images/gallery16/c635a734.gif?v=6332de85" />
 </p>
 
+<p align="middle">
+$\color{#FF0000}{\texttt{Honourable mention for my favourite local radio station, Kink.nl}}$
+
 <p align="center"> <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2o2cDI5dHJwajEwb3B0NHhjNHY5NGJyam5obWhldnFhdnJsdWR4aiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/hvRrmhWWai2VgCqPek/giphy.gif"
 <p align="center">
 
