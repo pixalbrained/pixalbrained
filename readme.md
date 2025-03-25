@@ -21,7 +21,10 @@ $\color{#FF0000}{\texttt{"All is ash and meat."}}$
   <img src="https://watermelon.crd.co/assets/images/gallery16/663d3253.gif?v=6332de85" />
 </p>
 
-![pony-town-SIGN ATA, BG3 C+H PLEASE PLEAS-happy-wink-blinking-padded-toy17-4x](https://github.com/user-attachments/assets/7ea97419-8726-41b3-8b17-e6b43d742b20) ![image](https://github.com/user-attachments/assets/96eca5df-1f3e-4cb8-9757-a3eb503efba4) ![image](https://github.com/user-attachments/assets/08bea917-80fb-46d9-882e-cba1385a90b0) ![pony-town-PAVE MY PATH WITH CORPSES -nod-blinking-padded-4x](https://github.com/user-attachments/assets/eee46fbd-0493-4aa4-9631-00eb1ecda661)
+<img src="https://github.com/user-attachments/assets/7ea97419-8726-41b3-8b17-e6b43d742b20" alt="pony-town-SIGN ATA, BG3 C+H PLEASE PLEAS-happy-wink-blinking-padded-toy17-4x" style="display: block; margin: 0 auto;">
+<img src="https://github.com/user-attachments/assets/96eca5df-1f3e-4cb8-9757-a3eb503efba4" alt="image" style="display: block; margin: 0 auto;">
+<img src="https://github.com/user-attachments/assets/08bea917-80fb-46d9-882e-cba1385a90b0" alt="image" style="display: block; margin: 0 auto;">
+<img src="https://github.com/user-attachments/assets/eee46fbd-0493-4aa4-9631-00eb1ecda661" alt="pony-town-PAVE MY PATH WITH CORPSES -nod-blinking-padded-4x" style="display: block; margin: 0 auto;">
 
 
 - ![strawpage-picasso-MiMAVhaGHYKkgZXkeQKb](https://github.com/user-attachments/assets/3cad379b-bad0-4413-8c86-cd3f2f066308)
