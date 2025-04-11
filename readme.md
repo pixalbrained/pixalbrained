@@ -3,18 +3,18 @@
 </p>
 
 <p align="middle">
-$\color{#FF0000}{\texttt{Big girls don't cry. Big girls don't you fucking cry.}}$
+$\color{#FF0000}{\texttt{'I'm not a good person, I'm barely a person at all But someday I'll be perfect and I'll make up for it all'}}$
 
 <p align="center"> <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2o2cDI5dHJwajEwb3B0NHhjNHY5NGJyam5obWhldnFhdnJsdWR4aiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/hvRrmhWWai2VgCqPek/giphy.gif"
 <p align="center">
 
 <p align="left">
-$\color{#FF0000}{\texttt{"what is the worth of a single mortal life?"}}$
+$\color{#FF0000}{\texttt{'what is the worth of a single mortal life?'}}$
 <p align="right">
-$\color{#FF0000}{\texttt{"How many die today? How many die tomorrow?"}}$
+$\color{#FF0000}{\texttt{'How many die today? How many die tomorrow?'}}$
   </p>
 <p align="middle">
-$\color{#FF0000}{\texttt{"All is ash and meat."}}$
+$\color{#FF0000}{\texttt{'All is ash and meat.'}}$
 
 
 <p align="center">
