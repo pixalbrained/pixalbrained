@@ -1,7 +1,11 @@
-Pony showoff under gif :O
+<p align="center">
+  Pony showoff under gif :O
+</p>
 
 
-![image](https://github.com/user-attachments/assets/751f64fd-c874-430a-be15-33f05fd4dead) ![image](https://github.com/user-attachments/assets/c5e9c922-128e-423c-8f13-020882334c24)
+<p align="center">
+  <img src="https://media1.tenor.com/m/8jXfTt9YgLsAAAAd/karlach-karlach-bg3.gif" />
+</p>
 
 
 
