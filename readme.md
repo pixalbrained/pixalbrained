@@ -1,16 +1,15 @@
-<p align="center">
-  Pony showoff under gif :O
-</p>
+>![Arm](https://gifs.crd.co/assets/images/gallery09/7e641508_original.png?v=ef433a6f)
 
+<img src="https://static.wikia.nocookie.net/kindergarten/images/2/2f/PlayerKG1.png/revision/latest?cb=20250627183531" width="48"><img src="https://static.wikia.nocookie.net/kindergarten/images/7/7f/Lilyhq.png/revision/latest?cb=20220114190135" width="32"> <img src="https://static.wikia.nocookie.net/kindergarten/images/d/d4/Nugget2.png/revision/latest/scale-to-width-down/1000?cb=20180406021902" width="32">
 
-<p align="center">
-  <img src="https://media1.tenor.com/m/8jXfTt9YgLsAAAAd/karlach-karlach-bg3.gif" />
-</p>
+>![image](https://github.com/user-attachments/assets/a40d7045-8792-47bf-8c55-b473b0f68a90)
 
+![image](https://github.com/user-attachments/assets/e3c20a53-d2a7-4dc7-90cf-43f61d9dc4e6) ![image](https://github.com/user-attachments/assets/09f0be58-32cf-4e16-a460-08bf18dff783)
 
+WIP ! 
 
- 
- ![pony-town-I will die your daughter (C+H)-nod-tears-blinking-padded-toy349-4x (1)](https://github.com/user-attachments/assets/56b6443b-6e75-48f5-8992-30ae5fd56433) ![pony-town-Simulation swarm (C+H)-double-nod-blinking-padded-toy349-4x](https://github.com/user-attachments/assets/996c1290-82d8-4455-938c-a9854ad52718) ![pony-town-I can't imagine sweetie (C+H)-yawn-blinking-padded-toy351-4x](https://github.com/user-attachments/assets/96626864-0560-47cf-8942-aa4ea9621732)  ![pony-town-MY GITHUB BROKE (C+H pls _))-cheeky-wink-blinking-padded-toy268-4x](https://github.com/user-attachments/assets/fa84c219-cba2-4349-8aa4-880f83c33cec) ![pony-town-Vik ! on jklm-fun C+H PLSPLSPL-sneeze-blinking-padded-toy336-4x](https://github.com/user-attachments/assets/b54f45d8-9a61-444b-a965-9dfab75a950d) ![pony-town-PAVE MY PATH WITH CORPSES c+h-annoyed-blinking-padded-4x](https://github.com/user-attachments/assets/32e9e3e7-1017-40a6-b37e-0ac4b72f0188) ![pony-town-First time plyng DDLC, @ night-giggle-blinking-padded-4x](https://github.com/user-attachments/assets/59ac7065-2d14-44ee-ac6b-9783ce88d5e7) ![pony-town-You need to try this alone-head-shake-blinking-padded-toy268-4x](https://github.com/user-attachments/assets/2cd112a4-e9e4-49b2-91bf-d3f0735a5c1b)
+<img src="https://github.com/user-attachments/assets/6f733180-f1e4-46e1-b74d-1f2f41bb2947" width="108"> ![image](https://github.com/user-attachments/assets/ce3b7629-6bd7-46ff-a538-a2b6c0cf65d7) ![image](https://github.com/user-attachments/assets/6cd2e937-e5cc-402a-aac2-4d6f8c7a5e1d)
+
 
 
 
